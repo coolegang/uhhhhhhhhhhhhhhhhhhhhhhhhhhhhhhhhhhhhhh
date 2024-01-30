@@ -1,2 +1,2 @@
 # uhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-ignore this repo
+ignore this repo cuz i made it for no reason
